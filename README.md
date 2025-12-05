@@ -1,1 +1,1 @@
-Zabawa typu : "popraw co zepsute"
+Zabawa typu: "popraw co zepsute"
